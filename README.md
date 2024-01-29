@@ -6,6 +6,8 @@
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=asandesh" alt="asandesh" /></a> </p>
 
 - 📫 How to reach me **sandeshamith73@gmail.com**
+-  📫📫📫📫📫📫📫**whatsapp - +94721702108**📫📫📫📫
+- 📫 Instragram <a href ="https://www.instagram.com/itsmeeamith/">itsmeeamith</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
